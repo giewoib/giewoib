@@ -3,7 +3,7 @@
 - Eu estou estudando no [Alura](https://cursos.alura.com.br/dashboard)
 
 - ⋆｡‧˚ʚ🍒ɞ˚‧｡⋆
-- Tenho 15 anos
+- Tenho 16 anos
 - E estou aprendendo programação!
 ⋆｡‧˚ʚ🍓ɞ˚‧｡⋆
 
